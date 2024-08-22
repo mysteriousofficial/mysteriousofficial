@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi I'm Mysterious nice to meet you!<br>- Amateur developer<br>- Amateur game developer<br>- Amateur music maker<br>- Founder of My Digital International<br>- Email: mysteriousofficial@outlook.jp
+Hi I'm r00tmyst nice to meet you!<br>- Amateur developer<br>- Amateur game developer<br>- Amateur music maker<br>- Founder of My Digital International<br>- Email: mysteriousofficial@outlook.jp
 
 
 ## 🌐 Socials:
